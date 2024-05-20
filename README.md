@@ -1,1 +1,1 @@
-# Micromax
+# Micromax - Developers
