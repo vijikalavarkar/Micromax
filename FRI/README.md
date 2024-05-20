@@ -1,1 +1,1 @@
-Its a beautiful monday
+Its a beautiful monday and have fun
