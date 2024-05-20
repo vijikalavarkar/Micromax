@@ -1,2 +1,2 @@
-# Micromax - Testers
+# Micromax - Jenkins Directory
 
