@@ -1,1 +1,1 @@
-Its a beautiful monday
+Its a beautiful friday from our side
